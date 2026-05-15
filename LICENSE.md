@@ -1,4 +1,4 @@
-
+Enhance your Astrill VPN experience with Astrill VPN vip Client: multi-device-support & multi-protocol-support, the #1 client. Includes multi-device-support and
 
 
 
